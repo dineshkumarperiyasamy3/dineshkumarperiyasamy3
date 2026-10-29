@@ -20,4 +20,4 @@
 MBA in Business Analytics & Marketing · B.Sc. in Computer Science
 
 ### 📫 Connect
-[LinkedIn]((https://www.linkedin.com/in/dineshkumarperiyasamy/)) · periyasamydineshkumar3@gmail.com
+https://www.linkedin.com/in/dineshkumarperiyasamy/ · periyasamydineshkumar3@gmail.com
